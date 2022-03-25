@@ -10,4 +10,4 @@ Usamos a inteligência dos dados para potencializar negócios, conectar pessoas 
 
 ----
 
-Co-creating with [Stefanini](https://stefanini.com/pt-br)
+co-creating with [Stefanini](https://stefanini.com/pt-br)
