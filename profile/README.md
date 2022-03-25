@@ -1,4 +1,4 @@
-## GAUGE - marketing meets tech
+## Gauge - Marketing meets Tech
 
 TRABALHAMOS NA INTERSECÇÃO DO MARKETING E TECNOLOGIA.
 
