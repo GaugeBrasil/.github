@@ -6,3 +6,8 @@ De consultoria de estratégia de mercado à operação de analytics, mídia, e c
 Usamos a inteligência dos dados para potencializar negócios, conectar pessoas e criar experiências.
 
 * [DIGITAL SERVICES](https://gauge.digital/)
+
+
+----
+
+Co-creating with [Stefanini](https://stefanini.com/pt-br)
